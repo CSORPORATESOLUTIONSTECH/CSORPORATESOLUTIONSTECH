@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @CSORPORATESOLUTIONSTECH
 - 👀 I’m interested in recruiting
-- 🌱 I’m currently looking for people to fill Techinal jobs
+- 🌱 I’m currently looking for people to fill Technical jobs
 - 💞️ I’m looking to collaborate on job searching
 - 📫 How to reach me www.corporatesolutionstech.com
 
